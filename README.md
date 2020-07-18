@@ -1,0 +1,2 @@
+# yetkingrup
+yetkingrup paylaşım
